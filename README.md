@@ -1,4 +1,4 @@
-# Kevin's GitHub Profile
+# Kevin's Profile
 ## Let's build something extraordinary together! 🚀
 - Do you have a new project idea or want to enhance an existing one?
 - Do you aspire to help people or organizations through the implementation of useful and well-crafted software?
