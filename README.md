@@ -1,19 +1,16 @@
 ![Software Engineer](https://media.licdn.com/dms/image/D4E16AQF8Ak8EdmacKw/profile-displaybackgroundimage-shrink_350_1400/0/1706478579648?e=1712188800&v=beta&t=cB8QmMc3Mjl_I0O6ZuRYfBG96OA4Gb8ErzzSb2M0dDk)
 
-## Let's build something extraordinary together! 🚀
-- Do you have a new project idea or want to enhance an existing one?
-- Do you aspire to help people or organizations through the implementation of useful and well-crafted software?
-- Do you want to make your project profitable by enhancing the user experience✨?
+# Let's build something extraordinary together! 🚀
 
 ## About Me
 
 I am a former civil engineer who discovered a love for the constantly evolving world of technology and the exhilarating process of thriving through new challenges within it.
-Currently, I am a software engineer focused on front-end web development due to the impact and experience it can create for the user.
-Fluent in both English and Spanish, I can communicate seamlessly in these languages. Additionally, I have a good command of French and German, enabling effective communication in these languages.
+Currently, I am a software engineer specialized on full-stack web development due to the impact and experience it can create for the user.
+Fluent in English, Spanish and French, I also have a good command of German, that allows me to communicate well with teams and clients
 
 ## 🌱 Always Learning
 
-I believe in the power of continuous learning. Currently delving into the realms of back-end technologies, and with an eye on the future, I'm eager to explore mobile development, additionally, I am keen to expand my knowledge into the exciting domain of Web 3, discovering the innovations and possibilities it holds for the future of the web.
+I firmly believe in the power of continuous learning throughout one's professional career. It allows individuals to adapt to change and evolve into better professionals and individuals. Currently delving into the realms of back-end technologies, and with an eye on the future, I'm eager to explore mobile development. Additionally, I am keen to expand my knowledge into various domains, continuously seeking new challenges and opportunities for growth.
 
 ## 🚀 Expertise 
 
