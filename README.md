@@ -1,4 +1,4 @@
-![Software Engineer](https://www.canva.com/design/DAF7MmVep0A/wLiiDf0n8rT2GScWrhCWww/view?utm_content=DAF7MmVep0A&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink&mode=preview)
+![Software Engineer](https://media.licdn.com/dms/image/D4E16AQF8Ak8EdmacKw/profile-displaybackgroundimage-shrink_350_1400/0/1706478579648?e=1712188800&v=beta&t=cB8QmMc3Mjl_I0O6ZuRYfBG96OA4Gb8ErzzSb2M0dDk)
 
 ## Let's build something extraordinary together! 🚀
 - Do you have a new project idea or want to enhance an existing one?
