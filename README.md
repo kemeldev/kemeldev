@@ -1,4 +1,4 @@
-(https://www.canva.com/design/DAF7MmVep0A/fJhYx3t31yZPa9OMHzSDTg/view?utm_content=DAF7MmVep0A&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+![Software Engineer](https://www.canva.com/design/DAF7MmVep0A/fJhYx3t31yZPa9OMHzSDTg/view?utm_content=DAF7MmVep0A&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 ## Let's build something extraordinary together! 🚀
 - Do you have a new project idea or want to enhance an existing one?
