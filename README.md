@@ -1,4 +1,4 @@
-![Software Engineer](https://media.licdn.com/dms/image/C4E1BAQHMayNVPXnEjg/company-background_10000/0/1608715623069/carlos_fernandez_casado_s_l__cover?e=1707084000&v=beta&t=IEiJD8HrQ1TspuA3DUpvm1aC96a8cekIJaLGxjBOfYY)
+![Software Engineer](https://www.canva.com/design/DAF7MmVep0A/fJhYx3t31yZPa9OMHzSDTg/view?utm_content=DAF7MmVep0A&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 ## Let's build something extraordinary together! 🚀
 - Do you have a new project idea or want to enhance an existing one?
