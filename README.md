@@ -15,7 +15,7 @@ I firmly believe in the power of continuous learning throughout one's profession
 ## 🚀 Expertise 
 
 - 2 Professional Engineering Careers
-- +1500 hrs dedicated to web develoment
+- +1.5 years dedicated to web develoment
 - Team work expertise, handling and working with lots of people
 - Client-focused mindset.
 
