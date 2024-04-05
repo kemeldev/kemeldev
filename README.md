@@ -1,4 +1,4 @@
-![Software Engineer](https://media.licdn.com/dms/image/D4E16AQF8Ak8EdmacKw/profile-displaybackgroundimage-shrink_350_1400/0/1706478579648?e=1712188800&v=beta&t=cB8QmMc3Mjl_I0O6ZuRYfBG96OA4Gb8ErzzSb2M0dDk)
+![Software Engineer](https://media.licdn.com/dms/image/D4E16AQF8Ak8EdmacKw/profile-displaybackgroundimage-shrink_350_1400/0/1706478579648?e=1717632000&v=beta&t=JrROa4iP2SL5QpDDTT1T5uM5WLtwBN0MCvrVSvrUhsg)
 
 # Let's build something extraordinary together! 🚀
 
